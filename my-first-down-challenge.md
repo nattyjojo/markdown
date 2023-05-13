@@ -39,7 +39,7 @@ I love listening to Afromusic and some times i let google asistance play random 
 - Creativity and openness to change
 - Willingness to learn
 
-![my fevorite gif](https://media2.giphy.com/media/W5HpuormunlLXMa4LC/giphy.gif?cid=ecf05e47ycey0zhds0k1c9w79qzi00f4cts21r1bdy4ew8ka&ep=v1_gifs_search&rid=giphy.gif&ct=g "my favorite gif")]
+![my fevorite gif](https://media2.giphy.com/media/W5HpuormunlLXMa4LC/giphy.gif?cid=ecf05e47ycey0zhds0k1c9w79qzi00f4cts21r1bdy4ew8ka&ep=v1_gifs_search&rid=giphy.gif&ct=g "my favorite gif")
 
 
 
